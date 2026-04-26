@@ -25,6 +25,8 @@
 
 - **Армянская лапша Arishta** — Bazikyan’s, 540 г
 - **Лапша стеклянная “Фунчоза” / Glass Noodles** — Metro Chef 150 г
+- **Макароны Aida Mezzi Gomiti Рожки** — 450 г
+- **Макароны Aida Fusilli спираль** — 400 г
 - **Спагетти №3** — Federici, 400 г
 - **Вермишель №96** — Federici 400 г
 - **Перья рифлёные №23** — Federici 180 г
